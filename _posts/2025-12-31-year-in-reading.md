@@ -27,6 +27,10 @@ She addresses the colonization and poisoning the native lands now called New Mex
 The topics are challeging and the essays are long, but Shapland uses section breaks, interspliced interviews, and other formal elements to keep the pace moving.
 I related to her attraction to Pema Chodron and the practice of tonglen: it gives a sense of hope to her testimony regarding sos much horror.
 
+#### [Brown Neon]() by Raquel Gutiérrez
+
+What I loved most about this book was the lesbian, queer, and punk history of the 90s and 2000s. In this era of queer erasure, it remains a remarkable document. The tension between the butch lesbians and the trans men, the politics of the softball leagues in East LA, the performance art in San Antonio: all of it seethes with drama. Gutiérrez's toughness is tempered by her vulnerablility. She lets us hear the voice of her self-doubt, to witness her awe for the desert southwest, and feel her profound love for those close to her.
+
 ### Other books I read
 
 
