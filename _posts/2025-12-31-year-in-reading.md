@@ -97,7 +97,7 @@ This was a wonderful story and well read. I loved magical aspect of the story se
 
 #### Death at the Sign of the Rook by Kate Atkinson
 
-I loved Atkinson's "The Normal Rules Don't Apply," and so decided to dive into the Jackson Brody series. I love how she sets up and intertiwnes the various msyteries of art theft while lampooning mystery stories in general. I also love that, even though she is poking fun, she treats all her characters with wonderful kindness.
+I loved Atkinson's "The Normal Rules Don't Apply," and so decided to dive into the Jackson Brody series. I love how she sets up and intertwines the various msyteries of art theft while lampooning mystery stories in general. I also love that, even though she is poking fun, she treats all her characters with wonderful kindness.
 
 #### Case Histories by Kate Atkinson
 
