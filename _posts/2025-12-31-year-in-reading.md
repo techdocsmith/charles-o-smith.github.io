@@ -3,15 +3,15 @@ layout: post
 title:  "My reading list from 2025"
 ---
 
-2025 was a tough year for many folks for many reasons. I'm grateful to have read (and listened to) so many good things. Good books are truly a balm for the morale.
+2025 was a tough year for many folks for many reasons. I'm grateful to have read (and listened to) so many good things. Good books are truly a balm for the morale during trying times.
 
 ### [Model Home](https://bookshop.org/a/100115/9781250397591) by Rivers Solomon
 
-"Model Home" was for me a horror story surrounding decades of gaslighting the Maxwell family experienced in a wealty Texas suburb. Solomon lays bare the characters' heartache and terror alongside their deep and complicated love for one another.
+"Model Home" was for me a horror story surrounding decades of gaslighting targeting the Maxwells, a Black family in a wealty Texas suburb. Solomon lays bare the characters' heartache and terror alongside their deep and complicated love for one another.
 
 ### [El Ghourabaa](https://metonymypress.com/products/el-ghourabaa-queer-trans-oddities/) Eli Tareq El Bechelany-Lynch and Samia Marshy editors
 
-I loved this "Queer and Trans collection of Oddities." The editors have collected a fine set of poems and stories by Arab queer folk. I could stand to reread the whole collection, but I especially loved Tareq El Bechelany-Lynch's story "The Spa" which wonderfully captures the fear, desire, and potential queer joy of the locker room.
+I loved this "Queer and Trans collection of Oddities." The editors have assembled a fine set of poems and stories by Arab queer folk. I could stand to reread the whole collection, but I especially loved Tareq El Bechelany-Lynch's story "The Spa" which wonderfully captures the fear, desire, and potential joys of the locker room.
 
 ### [Ghost Roots](https://bookshop.org/a/100115/9781324065852) by Pemi Aguda
 
@@ -23,13 +23,13 @@ The Forgetters is a masterclass in storytelling. Sarris sets up a wonderful fram
 
 ### Hooking UP by M. J. Arcangelini
 
-This is a great chapbook of poems that explore queer cruising culture in vivid detail with ache tenderness.
+This is a great chapbook of poems that explore queer cruising culture in vivid detail with aching tenderness.
 
 ### [Perpetual Law](https://bookshop.org/a/100115/9781646053384) by Mario Bellatin translated by Stephen Beachy
 
-[Stephen Beachy](http://www.livingjelly.com/), who translated Perpetual Law, was my major poject advisor for my MFA program ath the Universtiy of San Francisco and he remains a good friend. He also introduced me to Mario Bellatin. This mini novel is strange and unsettling; a creepy fever dream. I'd like to see folks adding this to their "novels to read in one sitting list."
+[Stephen Beachy](http://www.livingjelly.com/), who translated Perpetual Law, was my major poject advisor for my MFA program ath the Universtiy of San Francisco and he remains a good friend. He also introduced me to Mario Bellatin. This mini novel is strange and unsettling; a creepy fever dream. I'd like to see folks adding this to their "novels to read in one sitting list" alongside Bellatin's Beauty Salon.
 
-If you're not familiar with Stephen's own work, I encourage you to check him out. His novellas "Some Phantom and No Time Flat" are brilliant and I can't get enough of his Amish sci-fi/horror series "Zeke Yoder vs. the Singularity" and the follow-ups.
+If you're not familiar with Stephen's own work, I encourage you to check him out. His novellas "Some Phantom and No Time Flat" are brilliant and I can't get enough of his Amish sci-fi/horror series "Zeke Yoder vs. the Singularity" and its follow-ups.
 
 ### Chinese Checkers by Mario Bellatin translated by Cooper Renner
 
@@ -39,7 +39,7 @@ I enjoyed the stories, but also noted the foreward by Ken Sparling which is a wo
 
 ### [Sour Cherry](https://bookshop.org/a/100115/9781963108194) by Natalia Theodoridou
 
-Sour Cherry is a mesmerising riff on the Bluebeard style fairy tale. Theodoridou exprlores the family dynamics that evolve into a lifetime of destruction for a man/monster and the women and family attached to him.
+Sour Cherry is a mesmerising riff on the tale of Bluebeard. Theodoridou exprlores the family dynamics that evolve into a lifetime of destruction for a man/monster and the women and family attached to him.
 
 ### [What A Fish Looks Like](https://bookshop.org/a/100115/9781738316557) by Syr Hyati Beker
 
@@ -56,22 +56,22 @@ The rich language and the point of view of the mountain lion make this novel wor
 ### [Thin Skin](https://bookshop.org/a/100115/9780593469538) by Jenn Shapland
 
 I read this collection of essays by Jenn Shapland for an essay worskhop with Alexander Chee. In it, Shapland shines her light into the darkest caverns of America's heart.
-She addresses the colonization and poisoning the native lands now called New Mexico, the indidous impacts of whiteness and whte supremacy, the appeal of "woo," the endless war on women's bodies, and more.
+She addresses the colonization and poisoning the native lands now called New Mexico, the insidous impacts of whiteness and whte supremacy, the appeal of "woo," the endless war on women's bodies, and more.
 
 The topics are challeging and the essays are long, but Shapland uses section breaks, interspliced interviews, and other formal elements to keep the pace moving.
 I related to her attraction to Pema Chodron and the practice of tonglen: it gives a sense of hope to her testimony regarding so much horror.
 
 ### [Brown Neon](https://bookshop.org/a/100115/9781566896375) by Raquel Gutiérrez
 
-What I loved most about this book, which I also read for Alexander Chee's class, was the lesbian, queer, and punk history of the 90s and 2000s. In this era of queer erasure, it remains a remarkable document. The tension between the butch lesbians and the trans men, the politics of the softball leagues in East LA, the performance art in San Antonio: all of it seethes with drama. Gutiérrez's toughness is tempered by her vulnerablility. She lets us hear the voice of her self-doubt, to witness her awe for the desert southwest, and feel her profound love for those close to her.
+What I loved most about this book, which I also read for Alexander Chee's class, was the lesbian, queer, and punk history of the 1990s and early 2000s. In this era of queer erasure, it remains a remarkable document. The tension between the butch lesbians and the trans men, the politics of the softball leagues in East LA, the performance art in San Antonio: all of it seethes with drama. Gutiérrez's toughness is tempered by her vulnerablility. She lets us hear the voice of her self-doubt, to witness her awe for the desert southwest, and feel her profound love for those close to her.
 
 ### [Daydreamers](https://bookshop.org/a/100115/9781573662123) by Alvin Lu
 
-I found Daydreamers to be wildly different from Lu's first novel, The Hell Screens. Like a daydream, I found myself pleasntly lost between the ostensible present day of the narrative and the timelines of the various manuscripts woven into the story. There are secret (or not-so-secret) affairs, arcane Chinese literary societies, immigrant history, femmes fatales, and battles for coroporate succession all set in against a Bay Area and Los Angeles rendered in a "shot-through-gauze" haze that seems uniquely Californian.
+I found Daydreamers to be wildly different from Lu's first novel, The Hell Screens. Like a daydream, I found myself pleasntly lost between the present day of the narrative and the timelines of the various manuscripts woven into the story. There are secret (or not-so-secret) affairs, arcane Chinese literary societies, immigrant history, femmes fatales, and battles for coroporate succession all set in against a Bay Area and Los Angeles rendered in a "shot-through-gauze" haze that seems uniquely Californian.
 
 ### [One Hundred! Demons](https://bookshop.org/a/100115/9781770462779) by Lynda Barry
 
-I am a huge Lynda Barry fan and have especially found her [Syllabus](https://bookshop.org/a/100115/9781770461611) to be a huge inspriation in my creative practice. Since I chose to draw a demon a day for 2025, I couldn't end the year without re-reading her demons. The artwork in this book is exquisite and the stories are heartbraking and funny at the same time. "The Aswang," which I knew from her CD "The Lynda Barry Experience" is particularly wonderful. She has the uncanniest ability to capture the innocence of childhood alongside the remnants we're left with once the innocence has been stripped away.
+I am a huge Lynda Barry fan and have especially found her [Syllabus](https://bookshop.org/a/100115/9781770461611) to be a huge inspriation in my creative practice. Since I chose to draw a demon a day for 2025, I couldn't end the year without re-reading her demons. The artwork in this book is exquisite and the stories are heartbraking and funny at the same time. "The Aswang," which I knew from her CD "The Lynda Barry Experience" is particularly wonderful. She has the uncanniest ability to capture the innocence of childhood alongside the remnants left when the innocence has been stripped away.
 
 ### [The Week of Colors](https://bookshop.org/a/100115/9781949641899) by Elena Garro translated by Megan McDowell
 
@@ -97,11 +97,11 @@ This was a wonderful story and well read. I loved magical aspect of the story se
 
 #### Death at the Sign of the Rook by Kate Atkinson
 
-I loved Atkinson's "The Normal Rules Don't Apply," and so decided to dive into the Jackson Brody series. I love how she sets up and intertiwnse the various msyteries of art theft while all allong lampooning mystery stories in general. I also love that, even though she is poking fun, she treats all her characters with wonderful kindness. Loved it.
+I loved Atkinson's "The Normal Rules Don't Apply," and so decided to dive into the Jackson Brody series. I love how she sets up and intertwines the various msyteries of art theft while lampooning mystery stories in general. I also love that, even though she is poking fun, she treats all her characters with wonderful kindness.
 
 #### Case Histories by Kate Atkinson
 
-This is the first Jackson Brody story, and such a good one. Listening to the first chapter, I thought we were going to have a family drama type book. And we do, but the mystery does happen -- the disappearnce of a young girl. And, in her master weaver's style, Kate Atkinson brings ties in other stories of disappearance and loss beautifully.
+This is the first Jackson Brody story, and such a good one. Listening to the first chapter, I thought I was in for a family drama instad of a mystery. And we do get the family drama, but the mystery takes over when the family's youngest daughter disappears. Kate Atkinson masterfully ties in other stories of disappearance and loss beautifully while keeping us turning pages to figure out the mystery.
 
 #### One Good Turn by Kate Atkinson
 
