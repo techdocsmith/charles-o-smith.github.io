@@ -93,7 +93,7 @@ I've listening to more audiobooks, so want to share those here, too:
 
 #### Babel by R. F. Kuang
 
-This was a wonderful story and well read. I loved magical aspect of the story set against the colonialist history of a "sacred" learning institution. The characters are complex 
+This was a wonderful story and well read. I loved magical aspect of the story set against the colonialist history of a sacred learning institution. The characters are complex and the struggle between comfort and battling against colonialism is brilliantly told.
 
 #### Death at the Sign of the Rook by Kate Atkinson
 
