@@ -107,6 +107,7 @@ This is the first Jackson Brody story, and such a good one. Listening to the fir
 
 This follow up to "Case Histories" is set during the Edinburgh film festival. For me, it was a lot more suspenseful and tense than the other Brody stories I'd listened to. A fun story for sure.
 
+***
 
 ##### Affiliate discretion
 
