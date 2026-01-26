@@ -20,6 +20,7 @@ title:  "Charles the fabulist"
 
 ## Stories
 
+- [The Staircase](https://clubchicxulub.com/club-chicxulub-journal-vol-4-limbo/#elementor-toc__heading-anchor-15)
 - [The Giraffe](https://www.yourimpossiblevoice.com/the-giraffe)
 - [The Silver Ring](https://www.midnightchem.org/no-2/the-silver-ring)
 - [Where Do the Dead Go When the Living Come to Town](wdtdg.md)

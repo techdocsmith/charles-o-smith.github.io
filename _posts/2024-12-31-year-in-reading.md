@@ -116,6 +116,10 @@ There is dark dark magic at work in this novel.
 * [Blackouts](https://bookshop.org/a/100115/9780374293574) by Justin Torres
 * [Snow White](https://bookshop.org/a/100115/9780684824796) by Donald Bartheleme
 
+##### Affiliate discretion
+
+I use affiliate links to [bookshop.org](https://bookshop.org) in my reviews. If you follow the link and make a purchase within a certain timeframe, I will earn a commission with bookshop.org.
+
 <!--
 ![Cover of Fifty Beasts](https://cdn.thestorygraph.com/t5t9hx5a9nmndr44gicnw2lz1uzy) 
 -->
