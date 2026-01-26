@@ -63,7 +63,7 @@ I related to her attraction to Pema Chodron and the practice of tonglen: it give
 
 ### [Brown Neon](https://bookshop.org/a/100115/9781566896375) by Raquel Gutiérrez
 
-What I loved most about this book, which I also read for Alexander Chee's class, was the lesbian, queer, and punk history of the 1990s and eary 2000s. In this era of queer erasure, it remains a remarkable document. The tension between the butch lesbians and the trans men, the politics of the softball leagues in East LA, the performance art in San Antonio: all of it seethes with drama. Gutiérrez's toughness is tempered by her vulnerablility. She lets us hear the voice of her self-doubt, to witness her awe for the desert southwest, and feel her profound love for those close to her.
+What I loved most about this book, which I also read for Alexander Chee's class, was the lesbian, queer, and punk history of the 1990s and early 2000s. In this era of queer erasure, it remains a remarkable document. The tension between the butch lesbians and the trans men, the politics of the softball leagues in East LA, the performance art in San Antonio: all of it seethes with drama. Gutiérrez's toughness is tempered by her vulnerablility. She lets us hear the voice of her self-doubt, to witness her awe for the desert southwest, and feel her profound love for those close to her.
 
 ### [Daydreamers](https://bookshop.org/a/100115/9781573662123) by Alvin Lu
 
